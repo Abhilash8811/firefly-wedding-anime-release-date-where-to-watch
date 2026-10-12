@@ -1,6 +1,6 @@
 # Firefly Wedding Anime: Release Date, Where to Watch, Cast, Episodes & Manga Guide (2026)
 
-> **Firefly Wedding** (*Hotaru no Yomeiri*, ホタルの嫁入り) is a Meiji-era romance anime from David Production. It premiered on **October 9, 2026** and streams on **Crunchyroll**. This guide covers the release date, where to watch, the full cast and staff, the theme song, the English dub, the manga it adapts, and the questions people ask most.
+> **[Firefly Wedding](https://9anime.cfd)** (*Hotaru no Yomeiri*, ホタルの嫁入り) is a Meiji-era romance anime from David Production. It premiered on **October 9, 2026** and streams on **Crunchyroll**. This guide covers the release date, where to watch, the full cast and staff, the theme song, the English dub, the manga it adapts, and the questions people ask most.
 
 *Last updated: October 12, 2026.*
 
